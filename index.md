@@ -1,4 +1,4 @@
-**Gym Tracker Support**
+**Gym Tracker or Hard Support**
 
 Thank you for using our app! If you need assistance, have questions, or want to report an issue, please reach out to us using one of the methods below.
 WhatsApp Support (Fastest Response)
